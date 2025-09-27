@@ -14,4 +14,4 @@ I enjoy making practical tools that make life easier and inspired by real needs.
 - Open to collaborations, mentoring, or just exchanging ideas  
 - Always curious about new projects and discussions  
 
-📫 [LinkedIn](https://www.linkedin.com/in/fizahkhalid/) | [Email](mailto:fizah.khalid26@gmail.com)  | [Upwork](https://www.upwork.com/freelancers/~0166fe9cc6465ca582)
+📫 [LinkedIn](https://www.linkedin.com/in/fizahkhalid/) | [Email](mailto:fizah.khalid26@gmail.com) 
